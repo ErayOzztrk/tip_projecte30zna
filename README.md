@@ -1,0 +1,1 @@
+# tip_projecte30zna
